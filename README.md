@@ -43,7 +43,7 @@ the user is responsible.
 
 <a href="https://bit.ly/BOT_SUPPORT">ꜱᴜᴘᴘᴏʀᴛ ɢʀᴏᴜᴘ</a> |
 <a href="https://Wa.me/947772978164">ꜱʟ-ᴀʟᴘʜᴀ</a> |
-<a href="https://Wa.me/94763983965">ʜᴀɴꜱᴀᴋᴀʙʀᴏ |
+<a href="https://Wa.me/94763983965">ʜᴀɴꜱᴀᴋᴀʙʀᴏ2|
 
 <p align="center"> 
     
